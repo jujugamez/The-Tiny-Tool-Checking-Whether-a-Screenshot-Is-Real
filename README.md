@@ -1,0 +1,1 @@
+# The-Tiny-Tool-Checking-Whether-a-Screenshot-Is-Real
